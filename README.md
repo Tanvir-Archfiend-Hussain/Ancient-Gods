@@ -1,5 +1,12 @@
 # Ancient Gods
  React Project
+This project was designed for me to learn how to link HTML files and work with videos and CSS.
+
+React
+JAVASCRIPT 
+HTML 
+CSS
+
 
 This project was mainly for me to understand the React Framework. 
 I love this framework. 
