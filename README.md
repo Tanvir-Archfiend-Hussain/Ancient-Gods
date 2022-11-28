@@ -28,7 +28,7 @@ Lutgendorf also writes that the skills in Hanuman's resume also seem to derive i
 
 He is viewed as the ideal combination of "strength, heroic initiative and assertive excellence" and "loving, emotional devotion to his personal god Rama", as Shakti and Bhakti. In later literature, he is sometimes portrayed as the patron god of martial arts such as wrestling and acrobatics, as well as activities such as meditation and diligent scholarship. 
 
-<img src="[https://i.pinimg.com/736x/08/16/c3/0816c3f5a9d80d9c910412ff5db749d6.jpg](https://i.pinimg.com/originals/41/16/e0/4116e02280eca76e4d737991caa5ec63.png)" alt="" />
+<img src="https://i.pinimg.com/originals/41/16/e0/4116e02280eca76e4d737991caa5ec63.png" alt="" />
 
 He symbolises the human excellences of inner self-control, faith, and service to a cause, hidden behind the first impressions of a being who looks like a Vanara. Hanuman is considered to be a bachelor and an exemplary celibate.
 
