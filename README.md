@@ -1,5 +1,6 @@
 # Ancient Gods
- React Project
+<img src="https://www.bhaktiphotos.com/wp-content/uploads/2020/12/Lord-Hanuman-Angry-Look-HD-Photos.jpg" alt="" />
+#### React Project Hindu Gods
 This project was designed for me to learn how to link HTML files and work with videos and CSS.
 
 React
