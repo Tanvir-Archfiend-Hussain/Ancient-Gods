@@ -20,7 +20,7 @@ Hanuman is a Hindu god and a divine vanara companion of the god Rama. Hanuman is
 
 Evidence of devotional worship to Hanuman is largely absent in these texts, as well as in most archeological sites. According to Philip Lutgendorf, an American Indologist, the theological significance of Hanuman and devotional dedication to him emerged about 1,000 years after the composition of the Ramayana, in the 2nd millennium CE, after the arrival of Islamic rule in the Indian subcontinent. 
 
-<img src="https://i.pinimg.com/736x/08/16/c3/0816c3f5a9d80d9c910412ff5db749d6.jpg" alt="" />
+<img src="https://i.pinimg.com/originals/fb/69/d6/fb69d6c5a68f71adb802e3babeffcb41.jpg" alt="" />
 
 Lutgendorf also writes that the skills in Hanuman's resume also seem to derive in part from his windy patrimony, reflecting Vayu's role in both body and cosmos. Bhakti movement saints such as Samarth Ramdas have positioned Hanuman as a symbol of nationalism and resistance to persecution. The Vaishnava saint Madhva said that whenever Vishnu incarnates on earth, Vayu accompanies him and aids his work of preserving dharma. In the modern era, Hanuman's iconography and temples have been increasingly common. 
 
